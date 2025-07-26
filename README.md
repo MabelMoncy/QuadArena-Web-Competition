@@ -1,2 +1,2 @@
 ## Visit the website here:
-👉🏻 https://mabelmoncy.github.io/QuadArena-Web-Competitionition-/
+👉🏻https://mabelmoncy.github.io/QuadArena-Web-Competition/
